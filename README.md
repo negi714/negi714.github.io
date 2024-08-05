@@ -1,2 +1,2 @@
-# negi714.github.io
+# trash website
 i dunno what to do
